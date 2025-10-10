@@ -2,25 +2,28 @@ I'll update this later (when I can make something)
 
 # About me
 
-- Not studying at sunrin internet high school
+- sunrin internet high school's worst input and upcoming worst output
 - I am lazy
 - I HATE learning things.
 - Future Baeksu
 
+# status
+
+- I have 16474748393 things to study and I'm fucked up
+- I'm going to hangang
+
 # I can use ___
 
-- Nothing yet I'm sorry mom
+- Nothing yet
+- I'm sorry mom
 
 # I made ___
 
-- Nothing because I can use nothing.
+- Nothing
 
 # Contact
 
-I know nobody does contact me but if you do,
-- don't contact me.
-- shut up and go away.
-- thank you.
+- discord: 1ntro_verted
 
 # my iq is
 
